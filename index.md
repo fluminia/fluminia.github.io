@@ -21,4 +21,6 @@ He was best known for his 1980s hit songs "Super Freak", "Give it to Me Baby" an
 * emotional
 
 > If anything I consider myself non-violent.
-> I'm from the hippy era, peace, love, groovy. 
+> I'm from the hippy era, peace, love, groovy.
+
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.onthisday.com%2Fpeople%2Frick-james&psig=AOvVaw2FzmBPeQPV7DCtJRXmK-Fw&ust=1593093696828000&source=images&cd=vfe&ved=2ahUKEwjprbXQzprqAhVGexoKHevTDVUQr4kDegQIARAd"/>
