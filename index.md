@@ -14,3 +14,8 @@ He was best known for his 1980s hit songs "Super Freak", "Give it to Me Baby" an
 * humorous
 * difficult
 * complicated
+* could move a crowd
+* could make people feel good
+* could entertain a crowd very well
+* supportive of other musician's careers
+* emotional
