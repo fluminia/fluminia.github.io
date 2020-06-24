@@ -19,3 +19,6 @@ He was best known for his 1980s hit songs "Super Freak", "Give it to Me Baby" an
 * could entertain a crowd very well
 * supportive of other musician's careers
 * emotional
+
+> If anything I consider myself non-violent.
+> I'm from the hippy era, peace, love, groovy. 
